@@ -288,8 +288,7 @@ You are free to use, modify, and distribute these projects for educational purpo
 
 **Got questions or suggestions?**
 - 📧 Email: [iampriyanshuraj01@gmail.com](mailto:iampriyanshuraj01@gmail.com)
-- 💼 LinkedIn: [Priyanshu Raj](https://linkedin.com/in/rajpriyanshu)
-- 🐦 Twitter: [@rajpriyanshu](https://twitter.com/rajpriyanshu)
+- 💼 LinkedIn: [Priyanshu Raj](https://linkedin.com/in/rajpriyanshu1169)
 - 📱 Instagram: [@rajpriyanshu1169](https://instagram.com/rajpriyanshu1169)
 
 ---
